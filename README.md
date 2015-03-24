@@ -3,4 +3,5 @@
 * talk ideas:
     * maybe
         * jenny bryan
+        * erin ledell (mid august)
     * 
